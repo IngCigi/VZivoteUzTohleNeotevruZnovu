@@ -1,0 +1,2 @@
+# VZivoteUzTohleNeotevruZnovu
+ fakt ne fr
